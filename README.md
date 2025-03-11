@@ -1,2 +1,2 @@
 # bearandrabbit.github.io
-just for love
+day day up
